@@ -1,6 +1,6 @@
 ![Header](logo.jpg)
 
-<p align="center">میهن گاهشمار</p>
+<p align="center">In the Wake of the Lion and Sun Revolution (January 8–9, 2026)</p>
 
 | | | |
 |:-------------------------:|:-------------------------:|:-------------------------:|
